@@ -29,8 +29,8 @@ I’m an aspiring **Electrical and Electronic Engineer** passionate about **inno
 
 ### 📫 How to Reach Me:
 📩 **Email**: [vimeshtharu@gmail.com](mailto:vimeshtharu@gmail.com)  
-💼 **LinkedIn**: [linkedin.com/in/vimesh-tharushan](#)  
-🌐 **Website**: [Coming Soon]  
+💼 **LinkedIn**: https://www.linkedin.com/in/vimesh-tharushan-314413307/)
+🌐 
 
 ---
 
